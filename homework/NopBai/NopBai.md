@@ -7,3 +7,6 @@ Nguyễn Văn Trường - 21522733
 Trần Xuân Thành - 21520456
 Đỗ Minh Khôi - 21521007
 Nguyễn Hà Anh Vũ - 21520531
+Nguyễn Hoàng Tân - 21521413
+Nguyễn Ngọc Quang Huy - 20521401
+Lê Huỳnh Khánh Duy - 21521995
